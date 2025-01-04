@@ -1,3 +1,3 @@
 My Updated Resume Repo
 
-Thanks :)
+Thanks for checking out :)
